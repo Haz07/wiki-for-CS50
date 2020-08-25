@@ -1,0 +1,4 @@
+#Kerala Blasters FC
+Kerala Blasters Football Club is an Indian professional football club based in Kochi, Kerala. They compete in the Indian Super League, since its inception. The club was established on 24 May 2014 and began their first professional season a few months later in October 2014. The club was named after Sachin Tendulkar, the initial owner of the club.
+
+The club has traditionally worn its yellow home kit since its inception and is one of the widely supported clubs in India. They play their home matches at the Jawaharlal Nehru Stadium at Kochi. The club has held the record for highest league attendance every season, regularly averaging over 40,000 fans a game.
